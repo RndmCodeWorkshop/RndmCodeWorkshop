@@ -1,1 +1,3 @@
 # RndmCodeWorkshop
+
+Join me in a journey to make this world a better place...
